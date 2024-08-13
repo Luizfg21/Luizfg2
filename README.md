@@ -8,4 +8,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 Insta: luizfelipeganassini
 
-blob:https://web.whatsapp.com/c387f712-9340-4922-86d3-c7d4b5ca6fec
+![](blob:https://web.whatsapp.com/c387f712-9340-4922-86d3-c7d4b5ca6fec)
